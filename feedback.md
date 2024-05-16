@@ -1,0 +1,4 @@
+I lovedddd the worksheets from earth lab! If I ever got confused or needed to just slow down and process what we were doing I could always re read a section a million  times to get the picture of the challenge. I am saving earth lab forever! 
+Nothing it was awesome! The labs actually felt like I would use it in real life and could go back if I didn't fully grasp something. 
+It was great that you checked in, I think everyone really appericated it that. I didn't have a huge problem with getting the assignments done but knew others were struggling. Also the saturday at midnight due date helped alot too! 
+Thanks so much Alex! We all loved your class and felt like we could actually use it in the real world! 
