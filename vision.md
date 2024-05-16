@@ -1,0 +1,3 @@
+i. I think my dream GIS job is working remote!!! and on anything related to the environment. I used to work for the Forest Service and really I would love a remote FS job mapping fires and timbersale! 
+I really like looking at changes over time in GIS. So looking into creating maps with gifs to show the time lapse of things. I also really like coding however I do not feel super confident in it. So I would love to take some just online classes to help me keep getting familiar with coding.
+I'd like to focus on cartography and making my maps look better through colors and having better editing skills to make a map look amazing! I'd just like to fine tune everything to do with GIS. Also camping and hike more, taking my saturday has been alittle WACK. 
